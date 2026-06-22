@@ -1,11 +1,8 @@
 HAKUNASHORTCUT ARCHIVE
 ‎
-‎«Navigation through invisible systems»
+‎Navigation through invisible systems
 ‎
 ‎---
-‎
-‎STATUS: ACTIVE.
-
 
 The Hakunashortcut Archive is a living repository dedicated to studying the hidden structures that shape outcomes.
 
