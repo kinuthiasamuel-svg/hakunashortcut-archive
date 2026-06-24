@@ -6,4 +6,4 @@ The Hakunashortcut Archive is a living repository dedicated to studying the hidd
 
 Most people focus on results.
 
-The archive focuses on the systems beneath them.
+The archive focuses on the systems beneath them. 
